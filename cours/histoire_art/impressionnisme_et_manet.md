@@ -26,5 +26,6 @@ Il est intéressant de voir que certains de ses tableaux reprennent les codes du
 
 ## Ajouts personnels
 
-[1] « Certains portraits sont ressemblants jusqu'à la nausée » - Hegel
+> [1] « Certains portraits sont ressemblants jusqu'à la nausée » - Hegel
+
 A savoir qu'il ne me semble pas qu'Hegel condamne une frange du réalisme à travers cette phrase. Il condamne l'artiste qui n'expose pas sa vision du monde : « l'art c'est voir » et de manière individuelle. La personne ne faisant que fournir une simple copie de la réalité sans avoir *vu* n'est qu'un simple plagieur (note à moi même : lire des choses sur l'esthétiques selon Hegel).
