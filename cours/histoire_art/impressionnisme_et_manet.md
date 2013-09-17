@@ -9,14 +9,14 @@ Au moment où se met en place le grp,  Baudelaire écrit à la vue d'un receuil 
 
 On ne veut plus de l'art illusoire, copiant la réalité[1], ex ingres : académisme, réalisme naturaliste...
 
-L'impressionnisme se pose à contre courant du classique.
+L'impressionnisme se pose à contre-courant du classique.
 * L'artiste "montre" comment il peint (en « déliant, par exemple, sa manière de peindre »)
   * réflexion sur les codes de la peintures
   * déconstruction de la réalité
 
-*(ex)* Impression soleil levant
+> (ex) *Impression Soleil Levant - Monet*
 
-Le terme *impressionisme* a été trouvé par Manet regardant le tableau sus-cité (contrairement à ce que l'on peut dire)
+Le terme *impressionnisme* a été trouvé par Manet regardant le tableau sus-cité (contrairement à ce que l'on peut dire)
 
 ## Manet
 
