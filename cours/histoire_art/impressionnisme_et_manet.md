@@ -4,7 +4,7 @@
 
 Au moment où se met en place le grp,  Baudelaire écrit à la vue d'un receuil de Constantin Guys, « le peintre de la vie moderne ».
 
-* Exprimer [...] un présent sans cesse changeant
+* Exprimer un présent sans cesse changeant
   * On n'est plus tourné vers le passé mais vers l'avenir
 
 On ne veut plus de l'art illusoire, copiant la réalité[1], ex ingres : académisme, réalisme naturaliste...
