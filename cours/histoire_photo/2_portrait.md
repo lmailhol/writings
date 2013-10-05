@@ -14,7 +14,7 @@ Ces images → histoire et non artistique : pose la question du portrait.
 - Jeanne d'Arc (Marc Drayer) (1918)
   - Plan très rapprochés (dans le cadre du portrait)
   - Proche de l'expr allemand dans la mise en scène et de l'esthétique russe
-- Vivre sa vie (Jean Luc Godard)
+- Vivre sa vie (Jean Luc Godard) (1962)
   - Citation de Jeanne d'Arc dans le tableau 3 dans une discussion visuelle entre les divers portraits
   - La tableau ovale de Poe dans le tableau 12 dans une réflexion
 
