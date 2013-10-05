@@ -4,18 +4,6 @@ Participe à dif mouvt tout en gardant son idépendance. Il annonce le Dada et l
 
 Il lance le concept du ready-made.
 
-## Analyse
-
-« Nu descendant d'un escalier n°2 » / Huile sur toile / 146*89cm
-- Rejeté par certains cubistes
-- Tableau représentant la méca du mvt
-  - évap de la chair
-  - concept / invention
-- couleurs ocres jaune et marron, nu se détachant du tableau
-- anti représentation classique du nu
-  - ne serait-ce que par la descente et non la montée du nu
-- introduction d'éléments à trait à la chrono-photographie, traits, pointillés suivant le mouvement (ex Marey, Muybridge)
-
 ## Ready made
 
 Travail rep du mouvement. Logique suivante : a quoi bon le représenter quand on peut en a avoir un réel quand on le souhaite → arrive alors le premier ready made avec une simple roue de byciclette.
@@ -47,4 +35,16 @@ Puis il pose la question du livre d'artiste en commencant par la boite et en arr
 
 « Allégorie genre » : une couverture pour Vogue, pour l'Independance Day. Il utilise de la gaze à pensements représentant un vieux sang pour figurer le profil de George Washington.
 
+
+## Analyse
+
+« Nu descendant d'un escalier n°2 » / Huile sur toile / 146*89cm
+- Rejeté par certains cubistes
+- Tableau représentant la méca du mvt
+  - évap de la chair
+  - concept / invention
+- couleurs ocres jaune et marron, nu se détachant du tableau
+- anti représentation classique du nu
+  - ne serait-ce que par la descente et non la montée du nu
+- introduction d'éléments à trait à la chrono-photographie, traits, pointillés suivant le mouvement (ex Marey, Muybridge)
 
