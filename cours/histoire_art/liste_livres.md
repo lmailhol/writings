@@ -7,5 +7,9 @@
 - Barbara Steiner et Jun Yang, *Autobiographie*
 
 ### Artistes
+ 
+Matthew Barney, Claude Cahun, Rebecca Horn, Urs Lüthi, Mariko Mori, Orlan, Man Ray, Cindy Serman, Gillian Wearing.
 
-Matthew Barney, Claude Cahun, Rebecca Horn, Urs Lüthi, Mariko Mori, Orlan, Man Ray, Cindy Serman, Gillian Wearing
+## Japonisme
+
+- Siegfried Wichmann, *Japonisme*

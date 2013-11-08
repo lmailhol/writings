@@ -16,7 +16,7 @@ L'impressionnisme se pose à contre-courant du classique.
 
 > (ex) « Impression Soleil Levant - Monet »
 
-Le terme *impressionnisme* a été trouvé par Manet regardant le tableau sus-cité (contrairement à ce que l'on peut dire)
+Le terme *impression* a été trouvé par Manet regardant le tableau sus-cité (contrairement à ce que l'on peut dire)
 
 ## Manet
 
